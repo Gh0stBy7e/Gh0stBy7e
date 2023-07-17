@@ -6,7 +6,8 @@ I'm 18 years old.
 
 Got into computers ever since I got my first laptop, kinda wanted to work with 'em ever since.
 
-With time, I also got more and more into hacking, installed my first Kali Linux and.. didn't know what to do with it ¯\_ (ツ)_/¯
+With time, I also got more and more into hacking, installed my first Kali Linux and.. didn't know what to do with it 
+¯\_ (ツ)_/¯
 
 Got a first proper pc upgrade, a custom build on a budget, with the intention of upgrading it.
 
