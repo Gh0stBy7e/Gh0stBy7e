@@ -2,7 +2,7 @@ Heya? Guess I'm gonna introduce myself a bit more personal on here?
 
 My name's Ray (actually that's just a synonym but what gives)
 
-I'm 19 years old.
+I'm 20 years old.
 
 Got into computers ever since I got my first laptop, kinda wanted to work with 'em ever since.
 
