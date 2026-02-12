@@ -1,4 +1,4 @@
-20  years old (on/off) C++ programmer. 
+20  years old C++ programmer (on/off). 
 Occasionally messing around with Java and the likes.
 Kotlin here and there as well.
 
